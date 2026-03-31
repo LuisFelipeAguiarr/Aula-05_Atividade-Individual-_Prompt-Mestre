@@ -1,1 +1,2 @@
-# Aula-05_Atividade-Individual-_Prompt-Mestre
+Pasta de conteúdos de atividades da Aula 5.
+Assistir filme Her (Ela)
